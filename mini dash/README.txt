@@ -1,0 +1,1 @@
+dont wait something good its a test made with ai its realy bad LOL (i used chatgpt)
